@@ -8,6 +8,8 @@ https://sspool.nl/
 
 https://bihai.cf/
 
+https://proxies.bihai.cf/
+
 https://hm2019721.ml/
 
 https://free.dswang.ga/
